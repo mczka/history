@@ -40,6 +40,12 @@ the first was a word, a think, a idea !!! -> creation of univers mathematical po
 1993 64-bit CPU Intel Pentium 60MHz 0.8um
 
 
+## ISRAEL Abraham - 135
+70 destroy temple of Jerozolima
+
+135 end of israel by Roman 
+
+## ISRAEL 1948 - present
 
 
 # POLAND  X-XVIII
