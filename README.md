@@ -47,6 +47,7 @@ the first was a word, a think, a idea !!! -> creation of univers mathematical po
 
 ## ISRAEL 1948 - present
 
+1967 6days war - annexation of East Jerusalem
 
 # POLAND  X-XVIII
 # POLAND 1918 - 1939
